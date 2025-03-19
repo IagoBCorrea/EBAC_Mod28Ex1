@@ -1,4 +1,4 @@
-### Link criado por Arthur:
+### Link:
 https://telemarketing-cyl6.onrender.com/
 
 # Título do projeto
